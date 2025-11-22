@@ -19,3 +19,12 @@ Potential Medium Article Titles
 -	“Have you ever wondered what ‘The Big Guns’ of U.S. Intelligence looks like?”
 -	“The Technological Advantages of U.S. Intelligence Services”
 -	Am I painting a bigger target on my back? Probably. If I’m a sacrificial lamb, it’s an honor. This one is actually for yall reading at this moment. 
+
+
+Fatally consequential probelem:
+I am a 23 year old woman. When I get excited about a boy I am interested in, I get my underwear a little moist. 
+With the USG Intelligence services watching me, they can tell when I get my panties wet, indicating I am interest in a boy. 
+I think this is a big violation of privacy, its almost the same as
+What if I was a boy, and I got a hard on for specific events in my life. 
+This is essentially the same as a girl getting wet panties. 
+Now, the United States Government is watching a 23 year old girl, in her home, texting a boy, getting wet in her panties, and the United States Government is commenting on "oh she is getting wet because of this". Is that a violation of privacy?
