@@ -29,5 +29,13 @@ What if I was a boy, and I got a hard on for specific events in my life.
 This is essentially the same as a girl getting wet panties. 
 Now, the United States Government is watching a 23 year old girl, in her home, texting a boy, getting wet in her panties, and the United States Government is commenting on "oh she is getting wet because of this". 
 Is that a violation of privacy?
+Okay, now lets say, as this 23 yo girl is getting wet in her own home, the USG intelligence services is sharing this information with some random dude who knows someone in the intel services.
+So the intel services are sharing information with this guy, say 25 yo, and he is getting up to the minute information on what the 23yo girl is doing, how she is actiing, if she is wet and or excited. 
+Now, this guy shares this information with 30 of his fraternity brothers. And his girlfriend shows her 30 sorority sisters the intel. But All of it came from the tech and budget of the  UDG intel. 
+And now, the 60 of these people are so interested in this hot girl who is getting her panties wet in front of about 20 of these people who are stationed in the 2 apartments tangential to her apartment.
+Now these 20 people communicate with their friends stationed outside the apartment. They tell each other when the hot girl is taking her dog out. So every time the girl takes her dog out,
+they are right outside to stalk and follow her. Now, how would dads feel about this? What if the situation were flipped, how would moms feel about this? 
+
+Do you think discrict/circuit/ and federal judges would designate the situation different for  boys than for girls. I DIDNT FUCKING THINK SO 
 
 Lets see what the public thinks
